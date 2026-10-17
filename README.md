@@ -1,2 +1,2 @@
 # audicu707.github.io
-corrupt football game privacy policy
+audicu707 games privacy policies
